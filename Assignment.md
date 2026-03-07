@@ -19,5 +19,4 @@
 > Pls upload the Video in Google form link
 
 # 7 Linkedin Post
-> Submit the LinkedIn post URL
-> [LinkedIn post URL]
+> https://www.linkedin.com/posts/sharumathi-p_medicalrobotics-aiinhealthcare-browserbiotics-activity-7436093727435227136-ulqP?utm_source=share&utm_medium=member_desktop&rcm=ACoAAElLtQgBET37PaL7SavNONPqvEkDNOaN7BA)
